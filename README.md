@@ -1,20 +1,3 @@
-ProfileMe.dev
-
-
-INTRODUCTION
-SKILLS
-SOCIALS
-BADGES
-SUPPORT
-Go home
-© 2024 Dan Cranney
-
-Follow me
-|
-Buy Me a Coffee
-Support
-Make it easy for people using your products to support you or give donations.
-
 Previous section
 buymeacoffee
 BUY ME A COFFEE:
